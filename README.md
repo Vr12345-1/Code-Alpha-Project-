@@ -1,1 +1,1 @@
-# Vishwarajan-S-Code-Alpha-Project-
+Code-Alpha-Project-
